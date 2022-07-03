@@ -1,2 +1,2 @@
 # Intro
-detailed explanation.
+detailed explanation, from the youtube content!!!
